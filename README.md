@@ -8,17 +8,6 @@
 
  -->
 
-I spend most of my free time working on coding projects, reading forums or articles on either tech, UI/UX or very obscure oddities throughout history. I truly am a sucker for going down the rabbit hole... 
-
-Occasionally I can be found on Magic Arena slinging digital cards or indulging in my guilty pleasure; Minecraft.
-
-I also think Larry Tesler is an unsung hero
-
-
-
-
-
-
 ## **I Love**
 
 
