@@ -1,4 +1,4 @@
-## **Junior Full Stack Developer**
+## **Full Stack Developer**
 [![alt text](Images/gmailBadgev2.svg)](mailto:james.sinclair.welsh@gmail.com)
 
 <!-- [![alt text][Gmail]][hyperlink]
